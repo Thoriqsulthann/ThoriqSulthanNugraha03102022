@@ -1,2 +1,2 @@
 # ThoriqSulthanNugraha03102022
-Codingan 3 November 2022
+Codingan 3 Oktober 2022
